@@ -1,0 +1,1 @@
+Sealed platform near [[The Long Drop]] 
